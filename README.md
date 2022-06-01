@@ -1,1 +1,10 @@
+$ PERSONAL DATA
+  _____________
 WELCOME TO MY GITHUB JUMBOXCHANGE
+
+$ WHATSAPP
+  ________
+  +2347026260392
+
+$ REMEMBER I'M A DEMON
+  ____________________
